@@ -12,7 +12,7 @@
 
 ![Screenshot4](https://cdn.discordapp.com/attachments/1043598182401179753/1044170277363384411/Screenshot_4.jpg)
 
-![Screenshot5(https://cdn.discordapp.com/attachments/1043598182401179753/1044170277673775144/Screenshot_5.jpg)
+![Screenshot5](https://cdn.discordapp.com/attachments/1043598182401179753/1044170277673775144/Screenshot_5.jpg)
 
 
 
